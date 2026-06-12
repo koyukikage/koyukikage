@@ -1,7 +1,7 @@
 <div align="center">
-<img width="640" height="360" alt="higurashi-sotsu" src="https://github.com/user-attachments/assets/739246be-81c4-4962-8503-06dc1274abc8" />
 
-<img src="banner.gif" width="700">
+<img width="2560" height="1561" alt="photo_2026-06-12_11-40-25" src="https://github.com/user-attachments/assets/de311202-5cd7-4b46-b95e-d92bf3b2a34c" />
+
 <br><br>
 ✦ <a href="https://t.me/morduum">telegram</a>
 &nbsp;&nbsp;&nbsp;
