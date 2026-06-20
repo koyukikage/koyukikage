@@ -1,10 +1,11 @@
 <div align="center">
 
-<img width="498" height="306" alt="higurashi-sotsu (1)" src="https://github.com/user-attachments/assets/ea78488e-5b9d-41a4-8919-342e714ced68" />
+<img width="1200" height="666" alt="MjES_y0BUa3f50SBNOk_wR89Hn14PMDgONPzx1B-qBDbZmIYh3sJr1TYMoeywXdbGA4Gc53tq9jKW2GF6FOhzlhX" src="https://github.com/user-attachments/assets/ba213a09-4b88-4220-8ccb-bda0464cbe36" />
+
 
 
 <br><br>
-✦ <a href="https://koyukikage.straw.page/">info</a>
+✦ <a href="https://koyukikage1.straw.page/">info</a>
 &nbsp;&nbsp;&nbsp;
 
   
