@@ -4,12 +4,12 @@
 
 
 <br><br>
-✦ <a href="https://t.me/morduum">telegram</a>
+✦ <a href="https://koyukikage.straw.page/">info</a>
 &nbsp;&nbsp;&nbsp;
-✦ <a href="https://x.com/koyukikage">twitter</a> 
+
   
 ✦  <a href="https://ru.pronouns.page/@KOYUKII?_gl=1*1lxt1jd*_ga*MTQyMDcyNjA0OC4xNzgxNDI3NTQ3*_ga_TDJEP12Q3M*czE3ODE0Mjc1NDckbzEkZzEkdDE3ODE0Mjg5NjIkajYwJGwwJGgw">pronouns 
-(use vpn)</a> 
+</a> 
 
 <img src="https://komarev.com/ghpvc/?username=koyukikage&label=visitors&color=8a8a8a&style=flat" />
 <br><br>
