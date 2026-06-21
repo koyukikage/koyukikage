@@ -5,7 +5,7 @@
 
 
 <br><br>
-✦ <a href="https://koyukikage1.straw.page/">info</a>
+✦ <a href="https://koyukikage.straw.page/">info</a>
 &nbsp;&nbsp;&nbsp;
 
   
